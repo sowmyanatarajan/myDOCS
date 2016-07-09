@@ -1,5 +1,5 @@
 1.   
-2.                                                                                         
+2.                                                                                          
 3.     SOWMYA N  
          1. ✉ : sowmya.natarajan18@gmail.com
          2.                                                                                                        ☎: 206-3888-101
